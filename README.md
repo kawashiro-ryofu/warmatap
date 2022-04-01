@@ -4,7 +4,8 @@
    
 ![](https://i.loli.net/2017/12/23/5a3e0812758da.gif)  
 
-作者：daniwell、非科学の河童
+作者：daniwell
+魔改：非科学の河童
 
 # 致所有自行编辑修改的人
 
